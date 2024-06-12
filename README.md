@@ -1,0 +1,4 @@
+- Hi, I'm @Lina-F05
+- 👀 I am interested in Programming and drawing
+- 🌱 I am currently studying to be a graphic designer. I want to learn html5, java, php and css
+- 😄 Pronouns: I am an agender, but you can address me as she/they/he
